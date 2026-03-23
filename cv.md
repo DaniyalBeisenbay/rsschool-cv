@@ -39,6 +39,7 @@ I am looking for a job where I can gain experience and improve my skills.
 * English
 * Kazakh
 * Russian
+* Tatar
 
 
 

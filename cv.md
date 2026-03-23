@@ -28,7 +28,7 @@ I am looking for a job where I can gain experience and improve my skills.
 * Basic web development skills
 * Git & GitHub
 * Basic networking knowledge
-* Windows and Linux
+* Windows, Linux
 * Teamwork and communication
 * Fast learner
 

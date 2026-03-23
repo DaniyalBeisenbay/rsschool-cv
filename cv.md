@@ -18,7 +18,7 @@ I am 21 years old and I graduated from Astana IT University in Cybersecurity. I 
 
 I am a responsible and reliable person. I work well in a team and I am always ready to learn new things. I am interested in cybersecurity and want to grow in this field.
 
-I am looking for a job where I can gain experience and improve my skills.
+I am looking for a job where I can gain experience and improve - my skills.
 
 
 

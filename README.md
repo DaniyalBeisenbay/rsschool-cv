@@ -40,6 +40,8 @@ I am looking for a job where I can gain experience and improve my skills.
 * Kazakh
 * Russian
 
+https://DaniyalBeisenbay.github.io/rsschool-cv/
+
 
 
 
